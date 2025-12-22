@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning analytical proxder appreciate clarificationes 
 - 💞️ I’m looking to collaborate on finding solutions it with others 
 - 📫 How to reach me by email or phone 
-- 😄 Pronouns:
-- ⚡ Fun fact: ...
+- 😄 Pronouns: projecter
+- ⚡ Fun fact: ... sequencing physical frequency application 
