@@ -1,3 +1,4 @@
+hello
 👋- I'm shanestroup114
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning about it 
